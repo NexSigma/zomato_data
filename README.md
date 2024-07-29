@@ -1,0 +1,1 @@
+https://www.google.com/url?sa=i&url=https%3A%2F%2Ftheprint.in%2Fopinion%2Fpov%2F10-minute-zomato-delivery-is-a-great-idea-provided-you-dont-have-many-expectations%2F884788%2F&psig=AOvVaw2t95_RtvcizNCh_KYmmWv_&ust=1722381554949000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCJCr-7SxzYcDFQAAAAAdAAAAABAE
